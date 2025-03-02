@@ -2,7 +2,7 @@
 - 👀 I’m interested in Bioinformatics.
 - 🌱 I’m currently learning Molecular Biology & Biochem + Genomics.
 - 💞️ I’m looking to collaborate on bioscience, mathematics, and computer science.
-- 📫 How to reach me 604-442-9792 or arush.gadkar2005@gmail.com
+- 📫 How to reach me: arush.gadkar2005@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love Poutine 🇨🇦! 🤮🐟
 
