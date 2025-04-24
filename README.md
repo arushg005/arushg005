@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on bioscience, mathematics, and computer science.
 - 📫 How to reach me: arush.gadkar2005@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I share my birthday with Michael B. Jordan!
+- ⚡ Fun fact: My favorite song is Bad Liar by Imagine Dragons!
 
 <!---
 arushg205/arushg205 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
