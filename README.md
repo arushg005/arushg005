@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arushg005.
-- 👀 I’m interested in Bioinformatics.
+- 👀 I’m interested in Bioinformatics/Biotechnology.
 - 🌱 I’m currently learning Molecular Biology & Biochem + Genomics.
 - 💞️ I’m looking to collaborate on bioscience, mathematics, and computer science.
 - 📫 How to reach me: arush.gadkar2005@gmail.com
